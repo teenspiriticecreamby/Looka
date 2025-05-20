@@ -1,0 +1,2 @@
+# Looka
+Smart Logo Generation 
